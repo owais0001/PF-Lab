@@ -1,2 +1,5 @@
 # PF-Lab
-Here I upload all my programming fundamentals lab tasks
+muhammad owais
+26p-3077
+se 1b
+aais rabbani
